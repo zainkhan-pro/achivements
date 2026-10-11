@@ -1,3 +1,3 @@
-# achivement
+# achivements
 wow
 
